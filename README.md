@@ -1,0 +1,2 @@
+# podgotovka
+Dokumentacia 
