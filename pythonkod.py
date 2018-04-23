@@ -1,4 +1,4 @@
-import activistov instagram.com : @dinnur73 , @barkhaevaa, @ksucurly
+import activistov instagram.com : @dinnur73 , @barkhaevaa, @ksucurly. #исследования 
 
 
 
