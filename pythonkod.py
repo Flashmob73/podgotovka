@@ -4,7 +4,7 @@ find mistakes
 
 
 
-
+Create company https://sme.tinkoff.ru/accounts
 
 
 ........
